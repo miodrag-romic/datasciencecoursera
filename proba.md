@@ -1,1 +1,0 @@
-## Tesko sranje
